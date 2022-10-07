@@ -7,4 +7,4 @@
 
 <img src="NET.jpg"/>
 
-Подробнее [Wiki](https://ru.wikipedia.org/wiki/%D0%A1%D0%B8-%D0%91%D0%B8), [Rossiyanin](https://popgun.ru/viewtopic.php?f=207&t=891574)
+Подробнее [Wiki](https://ru.wikipedia.org/wiki/%D0%A1%D0%B8-%D0%91%D0%B8), [Rossiyanin](https://popgun.ru/viewtopic.php?f=207&t=891574), [Россиянин](http://forum.auto-cb18.ru/viewtopic.php?f=12&t=5206)
